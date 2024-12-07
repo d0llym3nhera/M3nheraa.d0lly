@@ -1,5 +1,8 @@
 # ʚ・ ୨୧ ABOUT MEEE ⸝⸝ ♡
 
+
+https://tenor.com/en-GB/view/liam-vickers-glitch-productions-murder-drones-glitch-murder-drones-murder-drones-episode-8-gif-7666818508855604356
+
 ┆⁠ˏˋ°•\*⁀➷ name: Menhera
 ┆⁠
 ┆⁠ˏˋ°•\*⁀➷ pronouns: she/her
